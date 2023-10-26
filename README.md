@@ -1,4 +1,6 @@
-🚀 ¡Hola, soy Cecilia!<br><br>Soy una apasionada desarrolladora y tester de software en constante aprendizaje. <br><br>🤝 Colaboración:<br><br>Creo firmemente en el poder de la colaboración. Tengo experiencia en una variedad de tecnologías, y mi misión es garantizar que los proyectos cumplan con los estándares más altos, ya sea como desarrolladora o tester.<br><br>💡 Mi objetivo:<br><br>Estoy emocionada por la posibilidad de colaborar en proyectos desafiantes y trabajar con equipos talentosos. Si buscas a alguien apasionada y comprometida, ¡no dudes en contactarme! .<br><br>¡Hablemos! 👩‍💻✨
+# ¡Hola, soy Cecilia! 👋🏻 
+
+Soy una apasionada desarrolladora y tester de software en constante aprendizaje. <br><br>🤝 Colaboración:<br><br>Creo firmemente en el poder de la colaboración. Tengo experiencia en una variedad de tecnologías, y mi misión es garantizar que los proyectos cumplan con los estándares más altos, ya sea como desarrolladora o tester.<br><br>💡 Mi objetivo:<br><br>Estoy emocionada por la posibilidad de colaborar en proyectos desafiantes y trabajar con equipos talentosos. Si buscas a alguien apasionada y comprometida, ¡no dudes en contactarme! .<br><br>¡Hablemos! 👩‍💻✨
 
 
 ## 🌐 Socials:
